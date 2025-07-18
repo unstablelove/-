@@ -1,5 +1,5 @@
 l do not like racist jokes or weird nsfw jokes so do not get near me if you're this kind of person.
 l really love c+h so do not hesitate to cuddle unless l'm with friends ^_^ 
-![image alt] (https://github.com/sick-angel/-/blob/7452e062906a77c8ba07a08bd95d36257dda9d19/db0ac412311683bae76dab935ef3ce44.jpg)
+![image alt] (https://github.com/-/blob/7452e062906a77c8ba07a08bd95d36257dda9d19/db0ac412311683bae76dab935ef3ce44.jpg)
   
 
