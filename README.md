@@ -2,4 +2,4 @@ l do not like racist jokes or weird nsfw jokes so do not get near me if you're t
 l dont mind c+h unless l'm with friends 
 
 —
-l won't be interacting first so no expectations. 
+l won't be interacting first only if l actually want to
