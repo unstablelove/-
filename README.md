@@ -4,4 +4,4 @@ l dont mind c+h unless l'm with friends
 
 —
 l won't be interacting first only if l actually want to
-?[image](7539425f30557de888dbf4ea150ae0ef.gif)
+
