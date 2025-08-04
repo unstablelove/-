@@ -1,7 +1,5 @@
 
-l do not like racist jokes or weird nsfw jokes so do not get near me if you're this kind of person.
-l dont mind c+h unless l'm with friends 
-
-—
-l won't be interacting first only if l actually want to
-
+call me wanda/Scarlett , nina or kai but wanda is preferred :3 
+I'm a minor!, plz int or c+h l'm friendly ^•^ 
+i really LOVE Wanda maximoff so if you do too INT PLSSLSLS and if you wanna bmf l dont mind too!
+whisp to int when l'm offtab pls ^_^
